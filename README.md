@@ -2,7 +2,7 @@
 
 ## [Novels](/#Novels)
 
-### [失乐园派对 (原创怪谈对话小说)](//xymol.github.io/plp) (创作中)
+### [失乐园派对 (原创对话小说)](//xymol.github.io/plp) (创作中)
 
 ## ...
 
